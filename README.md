@@ -1,2 +1,2 @@
 # workshop
-# Vaishnavipula
+# Vaishnavi
